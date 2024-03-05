@@ -1,1 +1,0 @@
-Upload percobaan 1-6 beserta latihannya disini
